@@ -1,2 +1,2 @@
-# -DO-AL-ENERJ-
+# -DOĞAL-ENERJi
 &amp;DOĞAL ENERJİ
